@@ -5,7 +5,7 @@
 أعصية البولينج
 ![image](https://github.com/user-attachments/assets/c99b2cc7-03cb-4bbd-ac5d-bf3112d55cb1)
 
-![image](https://github.com/user-attachments/assets/370a63a1-053c-4067-a743-c0b363e44504)
+
 كرة البولينج
 ![image](https://github.com/user-attachments/assets/95112b4c-4665-41d3-bc4a-3f3cecad3ef4)
 ![image](https://github.com/user-attachments/assets/345ff777-99c1-4789-bf4d-595acff79d85)
